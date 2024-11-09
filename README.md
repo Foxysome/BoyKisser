@@ -1,7 +1,7 @@
 # BoyKisser Folder
 
 
-## Will be updated every month. Like do you really need more?
+## Will be updated when i remember. Like do you really need more?
 \
 \
 Most images sourced from the web!
